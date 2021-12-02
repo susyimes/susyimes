@@ -2,4 +2,4 @@
 
 ### This is Susyimes
 
-### Decentralized | BlockChain | Metaverse | Android | AI | Music 
+### DAO | Decentralized | BlockChain | Metaverse | Android | AI | Music 
