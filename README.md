@@ -2,4 +2,4 @@
 
 ### This is Susyimes
 
-### Decentralized | Blockchain | Metaverse | Android | AI | Music | Prompts Whisperer
+### Prompts Whisperer| AI | Decentralized | Blockchain | Metaverse | Android | Music | 
