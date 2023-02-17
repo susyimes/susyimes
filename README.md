@@ -2,4 +2,4 @@
 
 ### This is Susyimes
 
-### Caster | Prompts Whisperer | AI | Decentralized | Blockchain | Metaverse | Android | Music 
+### Caster | Prompts Whisperer | AI | Decentralized | Blockchain | Metaverse | Android | Music | Trader
