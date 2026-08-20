@@ -1,5 +1,5 @@
-### Hi there 👋
+### Hi, this is Susyimes
 
-### This is Susyimes
+android | AI Native | Music
 
-### Caster | Prompts Whisperer | AI | Decentralized | Blockchain | Metaverse | Android | Music | Trader
+Flexible · Decentralized
